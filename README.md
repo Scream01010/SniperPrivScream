@@ -1,1 +1,3 @@
-# SniperPrivScream
+# vanity-guard
+Ne Kadar Hızlı Olursan Ol Nasibin Değilse Yetişemezsin...
+                                                         ⸺ Screαm ⸺
